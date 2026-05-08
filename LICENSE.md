@@ -1,4 +1,4 @@
-
+Enhance VMware Fusion for macOS with elite Automation for VMware Fusion for macOS - automated-tasks and file-indexing, the #1 automation. Includes automated-tasks and
 
 
 
